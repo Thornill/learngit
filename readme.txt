@@ -1,5 +1,4 @@
 GOOD DATL.
 under the gpl
 it is a good day
-dkjfaldjflafj
-dajdlfj
+stupid boss is lazy。
